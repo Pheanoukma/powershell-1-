@@ -1,6 +1,6 @@
 <h2 align="center"><u>Windows activation script 😬😛</u></h2>
 
-![black men for sale :) ( and hh is gay )](https://i.kym-cdn.com/entries/icons/mobile/000/039/073/one_eyebrow_raised.jpg)
+![black men for sale :) ( and hh is gay )](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcThcNSqrv2Kh8gygeuTqeeLMAbKoPq4aHbPxg&usqp=CAU)
 <h4 align="center"> black men for sale :) ( and hh is gay ) </h4>
 
 <p align="center">
