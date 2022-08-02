@@ -13,5 +13,5 @@ and yeah this is the powershellss!!! scripts!!!😛😛
 
 ### [+] Warning!
 Read this line or u will be stupid, To run it just copy the script below : )
-script : iwr -useb https://raw.githubusercontent.com/Pheanoukma/powershell-1-/main/ACTIVATOR.ps1 | iex
+### script : iwr -useb https://raw.githubusercontent.com/Pheanoukma/powershell-1-/main/ACTIVATOR.ps1 | iex
 Enjoy ur gay goofy ahh windows activator :robot: :monkey: 🤖 🙈
